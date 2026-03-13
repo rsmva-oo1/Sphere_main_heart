@@ -1,1 +1,1 @@
-Hozirchalik liyha bazi sabablarga ko'ra ishlamay qolgan
+Hozirchalik loyiha bazi sabablarga ko'ra ishlamayapti
